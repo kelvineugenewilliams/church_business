@@ -7,4 +7,4 @@ The property of Mount Calvary Baptist Church located at 4742 Todds Road, Lexingt
 
 This shall constitute yet another objection by a member in good-standing of Mount Calvary Baptist Church, and therefore no transfer or sale is permitted. 
 
-I am the only identified member living, I alone constitute a quorum. Any questions,?please see [this repository](https://github.com/MCBCMF/MCBCMassacre).
+I am the only identified member living, I alone constitute a quorum. Any questions, please see [this repository](https://github.com/MCBCMF/MCBCMassacre).
